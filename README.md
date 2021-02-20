@@ -1,10 +1,8 @@
 # Drop Beat Fridays
 Site for music mixes and personal playlists
 
-Created 021821 | Mix length 1:29:34
-
-This playlist was crafted strictly without equipment. Trying out a new technique. 
-It's a little rough around the edges but its coming together. Hope you enjoy. 
+These mixtapes are crafted strictly without equipment. Trying out a new technique. 
+They are a little rough around the edges but the process is coming together. Hope you enjoy. 
 
 DJ PANDA B
 
