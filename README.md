@@ -1,12 +1,10 @@
 # Drop Beat Fridays
 Site for music mixes and personal playlists
-Date 021821 
 
-Time 1:29:34
+Created 021821 | Mix length 1:29:34
 
 This playlist was crafted strictly without equipment. Trying out a new technique. 
-
-Little rough around the edges but its coming together. Hope you enjoy. 
+It's a little rough around the edges but its coming together. Hope you enjoy. 
 
 DJ PANDA B
 
@@ -18,13 +16,13 @@ Playlist \~ Explicit
 
 2 Jon B - Beat
 
-3 Chaka Demus - Murder She Wrote [edit]
+3 Chaka Demus - Murder She Wrote [Edit]
 
 4 City Girls - Act up Back Up [Remix]
 
 5 Too Short - Pop That Monkey Thang [Remix]
 
-6 Saweetie - Tap In [Short edit]
+6 Saweetie - Tap In [Short Edit]
 
 7 Snoop - Ain’t No Fun [Album Version]
 
@@ -48,13 +46,13 @@ Playlist \~ Explicit
 
 17 Johnny Cash - Ring of Fire [E-40 Edit]
 
-18 Too Short - I Need A Freak 
+18 Too Short - I Need A Freak [Album Version]
 
 19 Chuck Brown - Back It Up [Edit]
 
 20 George Benson - Give Me The Night [Nick Bike Remix]
 
-21 JT Snoop & Charlie - Signs
+21 JT Snoop & Charlie - Signs [Album Version]
 
 22 Aretha Franklin - Respect [Edit]
 
