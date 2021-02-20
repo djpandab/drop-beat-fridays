@@ -72,7 +72,7 @@ Playlist \~ Explicit
 
 27 JT - Long Edits
 
-More mixes can be found at mixcloud.com/steve-smith80/ 
+More mixes can be found at [mixcloud.com/steve-smith80/]
 
  
 
